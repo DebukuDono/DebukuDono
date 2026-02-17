@@ -1,4 +1,8 @@
 Welcome to my profile!
 
-Just a coder learning about computers!
+Aspiring Cybersecurity Enthusiast 
 
+Interested in: 
+
+- Full Stack
+- App Development
